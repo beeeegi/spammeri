@@ -1,0 +1,2 @@
+# spammeri
+banzi spammeri saurnolisgan
